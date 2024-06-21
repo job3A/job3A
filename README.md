@@ -8,9 +8,9 @@ meu nome é danielly Job
 
 ### Você pode entrar em contato comigo ;
 
-daniellyjob2020@gmail.com
+danielly@gmail.com
 
-@_danyy.ol1veir4
+
 
 
 
