@@ -10,7 +10,7 @@ meu nome é danielly Job
 
 daniellyjob2020@gmail.com
 
-@dany_0live1ra
+@_danyy.ol1veir4
 
 
 
